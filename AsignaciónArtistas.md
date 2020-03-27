@@ -2,7 +2,7 @@
 |---------------------------------------|-----------------------|
 | ARRIOLA MOSQUEDA SERGIO               | Reed Ghazala          |
 | ARTEAGA SIERRA BENJAMIN ANTONIO       | Dj Kool Herc          |
-| BAEZA ZAVALA JUAN PABLO               | Laetitia Sonami       |
+| BAEZA ZAVALA JUAN PABLO               | Laetitia Sonami    https://www.youtube.com/watch?v=PtAWzaQuKnQ   |
 | BUSTOS ZAVALA ESTEFANÍA               | Kraftwerk             |
 | CORDERO RODRIGUEZ MARCOS              | Ben Frost             |
 | FERNÁNDEZ CORONA GERALDINE CONCEPCIÓN | Suzanne Ciani         |
